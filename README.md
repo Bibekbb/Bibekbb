@@ -1,4 +1,4 @@
-## Hi there! I'm **Bibek**👋!  
+## Hi there! I'm **Bibek**👋
 
 ---
 
